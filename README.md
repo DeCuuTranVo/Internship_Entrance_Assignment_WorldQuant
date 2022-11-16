@@ -1,0 +1,1 @@
+# Internship_Entrance_Assignment_WorldQuant
